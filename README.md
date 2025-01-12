@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Carol 😁
+## Bem-vindo(a) ao perfil da Carol 😁💖
 
  <div>
    <a href="https://github.com/Carol-xuxi">
@@ -14,7 +14,7 @@
  
 <br>
  
-### Contato *-*!
+### Contato 🤩
  
 <div> 
   
